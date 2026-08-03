@@ -15,7 +15,12 @@ Currently a WIP !
 " i did not usurp the crown.I found it,in the gutter,and I,I picked it with with my own sword. "
   
 ---
-
 <!--TITLE TILTULD-->
 <div align="center">
-<span style="color: red;">i do not support napoleon.</span>
+<span style="color: red;">Vex or Bon .</span>
+<!--TITLE TILTULD-->
+<div align="center">
+<span style="color: red;">Agender - Transmasc . Aroace</span>
+<div align="center">
+  <img src="https://64.media.tumblr.com/10edb0c41d28d572762e0580ae3b3537/aed10ba3a76251e0-14/s1280x1920/f90e9f9dd99856603e4b6c87f8d59f5b77205331.pnj">
+</div>
